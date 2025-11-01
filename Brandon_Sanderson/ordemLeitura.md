@@ -31,6 +31,12 @@
     - Wind and Truth
 - Elantris
 - Yumi and the nightmare painter
+- Mistborn (Segunda Trilogia)
+    - The Alloy of Law
+    - Allomancer Jak and the Pits of Eltania
+    - Shadows of Self
+    - The Bands of Mourning
+    - The Lost Metal
 - Arcanum Unbounded
 - Steelheart
 - The Frugal Wizards Handbook for surviving medieval england
