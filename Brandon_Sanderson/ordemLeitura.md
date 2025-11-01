@@ -38,6 +38,15 @@
     - The Bands of Mourning
     - The Lost Metal
 - Arcanum Unbounded
-- Steelheart
+- The Reckoners Series ✔
+    - Steelheart
+    - Mitosis (falta ler)
+    - Firefight
+    - Calamity
+    - Lux (falta ler)
 - The Frugal Wizards Handbook for surviving medieval england
 - Legion
+    - Legion
+    - Stephen Leeds: Death and Faxes
+    - Skin Deep
+    - Lies of the Beholder
