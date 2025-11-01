@@ -1,0 +1,37 @@
+# Ordem de leitura dos livros do Brandon Sanderson
+
+
+- The Skyward Series ✔
+    - Defeding Elysium (falta ler)
+    - Skyward
+    - Starsight
+    - Sunrech
+    - ReDawn
+    - Evershore
+    - Cytonic
+    - Hyperthief
+    - Defiant
+- Mistborn (Primeira Trilogia)
+    - The Eleventh Metal
+    - The Final Empire ✔
+    - The Well of Ascension ✔
+    - The Hero of Ages
+    - Secret History
+- Tress of the Emerald Sea ✔
+- Warbreaker 
+- The Stormlight Archive 
+    - The Way of Kings
+    - Words of Radiance
+    - Edgedancer
+    - Oathbringer
+    - Dawnshard
+    - Rhyhm of War
+    - Horneater
+    - The Sunlit Man
+    - Wind and Truth
+- Elantris
+- Yumi and the nightmare painter
+- Arcanum Unbounded
+- Steelheart
+- The Frugal Wizards Handbook for surviving medieval england
+- Legion
