@@ -1,3 +1,3 @@
 # Livros
 
-Lendo atualmente: Warbreaker - Brandon Sanderson
+Lendo atualmente: The Hobbit - J.R.R Tolkien
