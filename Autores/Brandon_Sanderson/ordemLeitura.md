@@ -15,10 +15,10 @@
     - The Eleventh Metal
     - The Final Empire ✔
     - The Well of Ascension ✔
-    - The Hero of Ages
+    - The Hero of Ages ✔
     - Secret History
 - Tress of the Emerald Sea ✔
-- Warbreaker 
+- Warbreaker ✔
 - The Stormlight Archive 
     - The Way of Kings
     - Words of Radiance
